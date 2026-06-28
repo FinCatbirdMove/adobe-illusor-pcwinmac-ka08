@@ -1,4 +1,4 @@
-# 
+# Professional Adobe Illustrator effects for Mac OS | Turbo Adobe Illustrator effects for PC Windows. Featuring component-library and color-management — optimized for maximum performance on every platform.
 
 
 
